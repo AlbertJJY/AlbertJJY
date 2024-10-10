@@ -1,0 +1,3 @@
+- This is AlbertJJY.
+- 🌱 Currently learning Scratch and Computer Graphics.
+- 📫 How to reach me → wait for a moment... :P
